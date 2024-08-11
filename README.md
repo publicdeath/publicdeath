@@ -5,6 +5,4 @@
 <p align="center">
 $$\ Travis \ ♡ \  He/They/Xe $$ 
 </p>
-<p align="center">
-$$\ read \ rentry \ byi $$ 
-</p>
+
