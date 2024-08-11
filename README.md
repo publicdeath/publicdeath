@@ -1,10 +1,10 @@
 
 <p align="center">
-<img src="https://64.media.tumblr.com/1cca9aa87924f3d7772c47cbaf441b80/85db2938e638679e-b6/s1280x1920/b5dccf59684644708b6eb3e40370f653d65538fe.pnj"/>
+<img src="https://64.media.tumblr.com/a95bf425dfb7b44fde9562ff627b7a8c/efcb4a91761fcd7a-2e/s640x960/8e74a87634520c3ab3bffa91429691f435bdb07b.pnj"/>
 </p>
 <p align="center">
-$$\color{#e3c5ac} Travis \ ♡ \  He/They/Xe $$ 
+$$\ Travis \ ♡ \  He/They/Xe $$ 
 </p>
 <p align="center">
-$$\color{#e3c5ac} read \ rentry \ byi $$ 
+$$\ read \ rentry \ byi $$ 
 </p>
